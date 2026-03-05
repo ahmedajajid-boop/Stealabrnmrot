@@ -1,0 +1,2 @@
+# Stealabrnmrot
+سكربت عربي
